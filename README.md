@@ -24,3 +24,4 @@
 ![meme2 2](https://github.com/user-attachments/assets/c0b48037-8a2c-45a0-a5bd-7f128c572a58)
 ![meme18 2](https://github.com/user-attachments/assets/4dad9f51-1a2f-4a58-a79d-c399da5c7e18)
 
+<img width="796" height="846" alt="meme19" src="https://github.com/user-attachments/assets/658da14a-85cf-4942-a91a-00f1321df445" />
