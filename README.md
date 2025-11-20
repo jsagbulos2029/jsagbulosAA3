@@ -18,3 +18,4 @@
 ![meme18](https://github.com/user-attachments/assets/f69334c7-0ae0-4b22-8162-69c16cddf11d)
 <img width="1920" height="1080" alt="AA’s (1)" src="https://github.com/user-attachments/assets/316269f1-2d22-4b8c-8bda-c924c6d22069" />
 <img width="714" height="812" alt="meme6 2" src="https://github.com/user-attachments/assets/bac61ea3-5e11-44ac-bcf0-7e118332f8b4" />
+<img width="939" height="1080" alt="meme10 2" src="https://github.com/user-attachments/assets/eeaf49c4-6f40-4b33-a1b9-6b735cc20979" />
