@@ -13,6 +13,7 @@
 ![meme13](https://github.com/user-attachments/assets/c9be8ef5-ea6a-4994-88c6-604f61e80d10)
 ![meme14](https://github.com/user-attachments/assets/29cec530-5ab8-452f-9ecc-73a7b55bd88b)
 ![meme15](https://github.com/user-attachments/assets/d1f31677-9327-4e10-a675-cc841d947a64)
+![meme1 2](https://github.com/user-attachments/assets/7cfc1fd5-d9ff-445a-ab04-e9271d0429f0)
 ![meme16](https://github.com/user-attachments/assets/2a0f97e4-4ec7-4812-a0fe-e2b610d29ef5)
 ![meme17](https://github.com/user-attachments/assets/ec6104fd-ec32-4ab6-93d8-6c3beac70b03)
 ![meme18](https://github.com/user-attachments/assets/f69334c7-0ae0-4b22-8162-69c16cddf11d)
